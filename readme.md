@@ -1,3 +1,6 @@
+![Portada de Facebook Cyber Monday Promoción Neón Morado](https://user-images.githubusercontent.com/114018284/213521599-22a64fc4-ab1c-4ffc-b24e-d13a17f199c4.png)
+
+
 ## About Me:
 Soy Administradora de Negocios Internacionales y me desempeñé por casi 15 años en el sector empresarial, hasta descubrir mi pasión por la tecnología gracias a mi hijo, quien me pidió crearle un canal de YouTube. Tuve que aplicar el autoaprendizaje para la edición de videos y fotos y así llegué a tutoriales de programación, los cuales me mostraron una nueva forma de ver a la tecnología. Entendí que ese es el rubro que quiero seguir para convertirme en una gran desarrolladora web.
 
